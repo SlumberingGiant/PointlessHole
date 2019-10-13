@@ -1,2 +1,2 @@
 # PointlessHole
-A pointless hole for cave dwellers to fester within. It is a very cold, dark and gentle place for those who fear the sun.
+Writing a description that draws people in like on some social media account wastes time.
